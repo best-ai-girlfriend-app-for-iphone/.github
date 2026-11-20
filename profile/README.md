@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://chubby-gf.com/bestaigirlfriendappforiphone">
+<a href="https://chubby-gf.com/best-ai-girlfriend-app-for-iphone">
   <img src="https://raw.githubusercontent.com/best-ai-girlfriend-app-for-iphone/.github/main/bestaigirlfriendappforiphone.jpg" alt="Best AI Girlfriend App for iPhone - Unfiltered Chat" width="100%" />
 </a>
 
@@ -9,7 +9,7 @@
 <h3>Skip the App Store. Experience the ultimate companion right in your browser.</h3>
 
 <p>
-  <a href="https://chubby-gf.com/bestaigirlfriendappforiphone">
+  <a href="https://chubby-gf.com/best-ai-girlfriend-app-for-iphone">
     <img src="https://img.shields.io/badge/≡%20START%20CHATTING%20≡-ff1493?style=for-the-badge&labelColor=0d0d0d" alt="Start Chatting" height="45" />
   </a>
 </p>
@@ -132,7 +132,7 @@ You know what you want to say. You have typed it into other apps and been reject
 
 <div align="center">
 
-<a href="https://chubby-gf.com/bestaigirlfriendappforiphone">
+<a href="https://chubby-gf.com/best-ai-girlfriend-app-for-iphone">
   <img src="https://img.shields.io/badge/≡%20START%20CHATTING%20NOW%20≡-ff1493?style=for-the-badge&labelColor=0d0d0d" alt="Start Chatting Now" height="50" />
 </a>
 
